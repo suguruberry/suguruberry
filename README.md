@@ -5,8 +5,6 @@
 $${\color{red}\text{i feel it. another version of me.}}$$
 
  [prns.cc](https://pronouns.cc/@shedletskying) 
-[cardd](https://theflamepillar.carrd.co/)
- [strw.pg](https://fieldofbutterflies.straw.page/)
 
 
 

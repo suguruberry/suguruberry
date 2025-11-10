@@ -4,7 +4,7 @@
 
 $${\color{red}\text{i feel it. another version of me.}}$$
 
- [prns.cc](https://pronouns.cc/@shedletskying) [rentru](https://rentry.co/lineupeverybody)
+ [prns.cc](https://pronouns.cc/@shedletskying) [rentry](https://rentry.co/lineupeverybody)
 
 
 

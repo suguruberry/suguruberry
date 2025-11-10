@@ -4,7 +4,7 @@
 
 $${\color{red}\text{i feel it. another version of me.}}$$
 
- [prns.cc](https://pronouns.cc/@shedletskying) 
+ [prns.cc](https://pronouns.cc/@shedletskying) [about me](https://fluffle.cc/aboutme)
 
 
 

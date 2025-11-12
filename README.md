@@ -1,7 +1,6 @@
 <div align="center">
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ad6088f3-4789-4fbd-9a6b-8e32670c45ae" />
-
+![](https://files.catbox.moe/z1qffu.png)
 
 $${\color{pink}\text{i'll protect you in the next life.}}$$
 

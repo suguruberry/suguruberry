@@ -1,8 +1,9 @@
 <div align="center">
 
-<img width="605" height="559" alt="image" src="https://github.com/user-attachments/assets/95ae2032-2339-49ba-9b93-782f339da7c3" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ad6088f3-4789-4fbd-9a6b-8e32670c45ae" />
 
-$${\color{red}\text{i feel it. another version of me.}}$$
+
+$${\color{pink}\text{i'll protect you in the next life.}}$$
 
  [prns.cc](https://pronouns.cc/@shedletskying) [rentry](https://rentry.co/lineupeverybody)
 

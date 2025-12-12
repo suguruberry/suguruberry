@@ -7,7 +7,7 @@ me
 
 
 
- [click here to see fictionkins](https://pronouns.cc/@benjiwashere) [rentry](https://rentry.co/theegoists)
+ [click](https://pronouns.cc/@benjiwashere) [rentry](https://rentry.co/theegoists)
 
 
 

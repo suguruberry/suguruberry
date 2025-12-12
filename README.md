@@ -7,7 +7,7 @@ me
 
 
 
- [prns.cc](https://pronouns.cc/@shedletskying) [rentry](https://rentry.co/theegoists)
+ [click here to see fictionkins](https://pronouns.cc/@benjiwashere) [rentry](https://rentry.co/theegoists)
 
 
 

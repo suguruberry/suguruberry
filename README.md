@@ -1,10 +1,13 @@
 <div align="center">
 
-<img width="360" height="480" alt="image" src="https://github.com/user-attachments/assets/9abb6f23-968a-4b65-8917-417f58f61ec6" />
-
-me
+<img width="1200" height="1276" alt="image" src="https://github.com/user-attachments/assets/cc163c92-79d1-4206-a2db-070ceab99a0e" />
 
 
+
+
+
+
+(⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐)
 
 
  [click](https://pronouns.cc/@benjiwashere) [rentry](https://rentry.co/theegoists)

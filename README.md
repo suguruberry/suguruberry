@@ -11,7 +11,7 @@
 (⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐)
 
 
- [click](https://pronouns.cc/@benjiwashere) [rentry](https://rentry.co/theegoists)
+ [click](https://pronouns.cc/@benjiwashere) [slightly outdated rentry](https://rentry.co/theegoists)
 
 
 

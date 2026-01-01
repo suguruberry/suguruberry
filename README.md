@@ -13,7 +13,7 @@
 
 
 
- [prns.cc](https://pronouns.cc/@shedletskying) [rentry](https://rentry.co/theegoists)
+ [strw.pg](https://glistener.straw.page/) [rentry](https://rentry.co/theegoists)
 
 
 

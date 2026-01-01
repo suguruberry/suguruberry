@@ -14,7 +14,7 @@
 
 
 
- [strw.pg](https://glistener.straw.page/) [rentry](https://rentry.co/theegoists)
+ [strw.pg]() [rentry](https://rentry.co/theegoists)
 
 
 

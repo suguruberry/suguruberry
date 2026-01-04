@@ -14,7 +14,7 @@
 
 
 
- [strw.pg](https://fourtitude.straw.page/) [rentry](https://rentry.co/theegoists)
+ [strw.pg](https://foxyscovee.straw.page) [rentry](https://rentry.co/theegoists)
 
 
 

@@ -1,10 +1,20 @@
 <div align="center">
 
-<img width="360" height="480" alt="image" src="https://github.com/user-attachments/assets/b143ff19-0ff2-4c29-94ff-724f15b4040a" />
-
+<img src="https://files.catbox.moe/gc3ob4.png" width="500" height="500" />
 
 $\color{grey}{\text{【 may not be very talkative if we've just met 】}}$
 
+ ‎ ‎‎ ‎ 
+$\color{#537391}{\text{【 interact if our interests are alike :) 】}}$
+
+
+
+ ‎ ‎‎ ‎ 
+ ‎ ‎‎ ‎ 
+ ‎ ‎‎ ‎ 
+ ‎ ‎‎ ‎ 
+
+$\color{#85a9cc}{\text{【 link log 】}}$
 
 
 
@@ -12,10 +22,9 @@ $\color{grey}{\text{【 may not be very talkative if we've just met 】}}$
 
 
 
-
-
-
- [strw.pg](https://foxyscovee.straw.page) [rentry](https://rentry.co/theegoists)
+ [strw.pg](https://foxyscovee.straw.page)
+ ‎ ‎‎ ‎ 
+ [rentry](https://rentry.co/theegoists)
 
 
 

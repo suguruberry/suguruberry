@@ -22,9 +22,9 @@ $\color{#85a9cc}{\text{【 link log 】}}$
 
 
 
- [strw.pg](https://foxyscovee.straw.page)
  ‎ ‎‎ ‎ 
- [rentry](https://rentry.co/theegoists)
+[<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(42).png" />](https://foxyscovee.straw.page)
+ [<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(43).png" />](https://rentry.co/theegoists)
 
 
 

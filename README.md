@@ -1,20 +1,21 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/gc3ob4.png" width="500" height="500" />
-
-$\color{grey}{\text{【 may not be very talkative if we've just met 】}}$
-
- ‎ ‎‎ ‎ 
-$\color{#537391}{\text{【 interact if our interests are alike :) 】}}$
+<img width="480" height="360" alt="image" src="https://github.com/user-attachments/assets/3a5e87f5-632d-43f9-9b97-314bc636e524" />
 
 
+$\color{#fc5e03}{\text{【 huge daisuke kin 】}}$
 
  ‎ ‎‎ ‎ 
+$\color{#fce303}{\text{【 interact if our interests are alike :) 】}}$
+
+
+
+ ‎ ‎‎ ‎ 
  ‎ ‎‎ ‎ 
  ‎ ‎‎ ‎ 
  ‎ ‎‎ ‎ 
 
-$\color{#85a9cc}{\text{【 link log 】}}$
+$\color{#fce303}{\text{【 link log 】}}$
 
 
 

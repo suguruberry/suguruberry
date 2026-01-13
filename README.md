@@ -24,7 +24,7 @@ $\color{#gray}{\text{【 link log 】}}$
 
 
  ‎ ‎‎ ‎ 
-[<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(42).png" />](https://hollowpurpled.straw.page/)
+[<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(42).png" />](https://weepinggangelss.straw.page/)
  [<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(43).png" />](https://rentry.co/theegoists)
 
 

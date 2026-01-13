@@ -15,7 +15,7 @@ $\color{#fffff}{\text{【 interact if our interests are alike :) 】}}$
  ‎ ‎‎ ‎ 
  ‎ ‎‎ ‎ 
 
-$\color{#gray}{\text{【 link log 】}}$
+$\color{#gray}{\text{【 check strawpage 】}}$
 
 
 

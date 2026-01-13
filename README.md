@@ -15,7 +15,6 @@ $\color{#fffff}{\text{【 interact if our interests are alike :) 】}}$
  ‎ ‎‎ ‎ 
  ‎ ‎‎ ‎ 
 
-$\color{#gray}{\text{【 check strawpage 】}}$
 
 
 
@@ -24,8 +23,9 @@ $\color{#gray}{\text{【 check strawpage 】}}$
 
 
  ‎ ‎‎ ‎ 
-[<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(42).png" />](https://weepinggangelss.straw.page/)
- [<img width="200" height="200" alt="Untitled310_20260103164610" src="https://file.garden/aJOTtTTmbEJ8JQQ1/Untitled%20(43).png" />](https://rentry.co/theegoists)
+[strw.pg](https://weepinggangelss.straw.page/)
+[rentry](https://rentry.co/theegoists)
+[please read](https://docs.google.com/document/d/19q5SoByDT2Q4UuWkkRQKQaze9ZhvJRx_AgjGf8DyLE4/edit?usp=sharing)
 
 
 

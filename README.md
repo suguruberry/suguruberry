@@ -1,8 +1,8 @@
 <div align="center">
 
-"and i am the idiot with the painted face, in the corner taking up space."
+"i love you so, (please let me go)."
 
-[cardd](https://theflamepillar.carrd.co/) [prns](https://pronouns.cc/@shedletskying) [rentry](https://rentry.co/theegoists)
+[cardd](https://theflamepillar.carrd.co/) [prns](https://pronouns.cc/@shedletskying) [strw.pg](https://straw.page/draw?bio=weepinggangelss)
 
 
 

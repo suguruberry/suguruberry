@@ -5,10 +5,7 @@
 
 
 
-
-$${\color{#ffe608}aren't the stars beautiful four?}$$
-
-$${\color{#0374ff}i love you x}$$
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/3356208c-9d12-450f-b698-9af917a59448" />
 
 
 [prns](https://pronouns.cc/@twoifying) [strw.pg](https://weepinggangelss.straw.page/)

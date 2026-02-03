@@ -2,14 +2,14 @@
 
 ***
  
- bennn   ⸝⸝   
+ sukuna   ⸝⸝   
 
- ✦  ›  so full of joy
+ ✦  ›  so full of joy and hedonism
 
-◠  w2i alwys  ,,  bemyfriend:)  Ი𐑼
+◠  w2i alwys  ,,    Ი𐑼
 
 
-[prns](https://pronouns.cc/@radiodeer) [strw.pg](https://fourtitude.straw.page)
+[prns](https://pronouns.cc/@kingofcurses) [strw.pg](https://fourtitude.straw.page)
 
 ***
 

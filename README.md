@@ -9,7 +9,7 @@
 ◠  w2i alwys  ,,  bemyfriend:)  Ი𐑼
 
 
-[prns](https://pronouns.cc/@Bookie) [strw.pg](https://fourtitude.straw.page)
+[prns](https://pronouns.cc/@Kingofhell) [strw.pg](https://fourtitude.straw.page)
 
 ***
 

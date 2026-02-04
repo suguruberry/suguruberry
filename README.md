@@ -6,7 +6,13 @@
 
  ✦  ›  so full of joy and hedonism
 
-◠  w2i alwys  ,,    Ი𐑼
+◠  whisper 2 interact always  ,,    
+
+ pushes you down stairs
+  pushes you down stairs
+   pushes you down stairs
+    pushes you down stairs
+     pushes you down stairs
 
 
 [prns](https://pronouns.cc/@kingofcurses) [strw.pg](https://fourtitude.straw.page)

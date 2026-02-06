@@ -9,9 +9,6 @@
 
 ✦  whisper 2 interact always
 
- pushes you down stairs
- 
-  pushes you down stairs
  
   
 

@@ -15,7 +15,7 @@
 
 
 
-[​🇵​​🇷​​🇳​​🇸​​🇨​​🇨](https://pronouns.cc/@teamshadow)  -  [ʀɴᴛʀʏ](https://rentry.co/hwsii2dx)
+-  [ʀɴᴛʀʏ](https://rentry.co/hwsii2dx)
 
 
 

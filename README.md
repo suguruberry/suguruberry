@@ -2,9 +2,7 @@
 
 ***
  
- sukuna   ⸝⸝   
-
-   ›  so full of joy and hedonism 
+[<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/62894aad-2a33-4856-832d-aa0b7c2ca12e" />](https://i.pinimg.com/originals/ce/83/c0/ce83c077ec851478de377e7410218b65.gif)
 
 
 ✦  whisper 2 interact always
@@ -13,9 +11,13 @@
   
 
 
-[prnscc](https://pronouns.cc/@teamshadow) [rentry](https://rentry.co/hwsii2dx)
 
-<img width="70" height="18" alt="image" src="https://github.com/user-attachments/assets/05b75536-1c02-4a4c-ae27-c3c6fdb999d2" /> <img width="57" height="18" alt="image" src="https://github.com/user-attachments/assets/6f1eb22f-184b-4155-b3e9-ac4b201f55e8" /> <img width="96" height="18" alt="image" src="https://github.com/user-attachments/assets/66d6d564-6caa-429d-89c3-cd7d74f72d0e" />
+
+
+
+[​🇵​​🇷​​🇳​​🇸​​🇨​​🇨](https://pronouns.cc/@teamshadow)  -  [ʀɴᴛʀʏ](https://rentry.co/hwsii2dx)
+
+
 
 
 

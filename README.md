@@ -2,7 +2,7 @@
 
 ***
  
-[<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/62894aad-2a33-4856-832d-aa0b7c2ca12e" />](https://i.pinimg.com/originals/ce/83/c0/ce83c077ec851478de377e7410218b65.gif)
+<img width="600" height="900" alt="image" src="https://files.catbox.moe/3sz2jd.png" />
 
 
 ✦  whisper 2 interact always

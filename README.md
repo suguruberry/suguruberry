@@ -15,7 +15,7 @@
 
 
 
-[​sᴛʀᴀᴡᴘᴀɢᴇ](https://childsupporter.straw.page/) -  [ʀɴᴛʀʏ](https://rentry.co/hwsii2dx)
+[​sᴛʀᴀᴡᴘᴀɢᴇ](https://childsupporter.straw.page/) -  [ʀɴᴛʀʏ](https://rentry.co/hwsii2dx) - [ᴘʀɴs.ᴄᴄ](https://pronouns.cc/@suguruberry)
 
 
 

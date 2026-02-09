@@ -1,8 +1,8 @@
 <div align="center">
 
 ***
- 
-<img width="600" height="900" alt="image" src="https://files.catbox.moe/3sz2jd.png" />
+
+<img width="440" height="336" alt="image" src="https://github.com/user-attachments/assets/d6d314ed-0e0c-4c45-8125-14941d444396" />
 
 
 ✦  whisper 2 interact always

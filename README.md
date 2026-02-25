@@ -7,8 +7,6 @@
 
 
 
-⠀⠀⠀  whisper 2 interact always
-
  
   
 

@@ -17,7 +17,7 @@
 
 
 
-[​sᴛʀᴀᴡᴘᴀɢᴇ](https://childsupporter.straw.page/) -  [ʀɴᴛʀʏ](https://rentry.co/hwsii2dx)
+[​strawpage](https://childsupporter.straw.page/) -  [rentry](https://rentry.co/hwsii2dx)
 
 
 

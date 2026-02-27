@@ -15,7 +15,7 @@
 
 
 
-[rentry](https://rentry.co/hwsii2dx) 
+[rentry](https://rentry.co/hwsii2dx) [strawpage](https://fourtitude.straw.page/)
 
 
 

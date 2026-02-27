@@ -15,7 +15,7 @@
 
 
 
-[rentry](https://rentry.co/hwsii2dx) [about me](https://docs.google.com/document/d/1b7HXZz-Sa11x9AfSXJNS4Z1BGopRQCo-htya_VgnqO4/edit?tab=t.0)
+[rentry](https://rentry.co/hwsii2dx) 
 
 
 

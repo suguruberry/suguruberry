@@ -15,7 +15,7 @@
 
 
 
-[**rentry**](https://rentry.co/hwsii2dx) [**pronouns.cc**](https://pronouns.cc/@theimmortal)
+[**rentry**](https://rentry.co/hwsii2dx) [**pronouns.cc**](https://pronouns.cc/@bountyhunt)
 ***
 buddies:
 

@@ -16,7 +16,7 @@
 
 
 
-[**rentry**](https://rentry.co/hwsii2dx) [**pronouns.cc**](https://pronouns.cc/@bountyhunt)
+[**rentry**](https://rentry.co/hwsii2dx) [**strawpage**](https://bountyhunterr.straw.page/)
 ***
 buddies:
 

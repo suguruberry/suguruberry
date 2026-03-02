@@ -17,7 +17,7 @@
 
 look at the links their peak trust
 
-[**rentry**](https://rentry.co/hwsii2dx) [**pronouns.cc**](https://pronouns.cc/@tabbo)
+[**strawpg**](https://bountyhunterr.straw.page/) [**pronouns.cc**](https://pronouns.cc/@tabbo)
 ***
 buddies:
 

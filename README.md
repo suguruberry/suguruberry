@@ -17,7 +17,7 @@
 
 look at the links their peak trust
 
-[**strawpg**](https://bountyhunterr.straw.page/) [**pronouns.cc**](https://pronouns.cc/@uguru)
+[**strawpg**](https://suguruberry.straw.page/) [**pronouns.cc**](https://pronouns.cc/@uguru)
 ***
 buddies:
 

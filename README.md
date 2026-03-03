@@ -17,7 +17,7 @@
 
 look at the links their peak trust
 
-[**strawpg**](https://tenshadows.straw.page/) [**prn.cc**](https://pronouns.cc/@robin)
+[**strawpg**](https://tenshadows.straw.page/) [**prn.cc**](https://pronouns.cc/@fushi)
 ***
 buddies:
 

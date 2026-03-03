@@ -1,6 +1,5 @@
 <div align="center">
 
-***
 
 <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/e03deae9-12c3-4e21-ad92-12f737b6d412" />
 
@@ -13,9 +12,6 @@
 
 
 
-
-
-look at the links their peak trust
 
 [**strawpg**](https://tenshadows.straw.page/) [**prn.cc**](https://pronouns.cc/@fushi)
 ***

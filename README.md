@@ -1,6 +1,9 @@
 <div align="center">
 
 
+|  |  |  |
+|:---|:---:|---:|
+| <img src="https://file.garden/aJOTtTTmbEJ8JQQ1/Screenshot%202026-03-15%201.44.48%20PM.png?v=1773596883799"/> | **"the strawhat pirates"**| <img src="https://file.garden/aJOTtTTmbEJ8JQQ1/Screenshot%202026-03-15%201.44.48%20PM.png?v=1773596883799"/> |
 
 
 
@@ -8,17 +11,6 @@
 
  
   
-
-
-
-
-
-
-buddies:
-
-[*satorufied♡*](https://github.com/satorufied) 　[*UNSTABLEDED*](https://github.com/UNSTABLEDED)　 [*totallycecil*](https://github.com/totallycecil)　 [*LEAFPIN*](https://github.com/LEAFPIN)　 [*nyxzV4*](https://github.com/nyxzV4)　 
-
-[*p2ixes*](https://github.com/p2ixes)　 [*KANDYGUTZ*](https://github.com/KANDYGUTZ)　 [*bazlnka*](https://github.com/bazlnka) 　[*SpaceyKozzie*](https://github.com/SpaceyKozzie)　..yeah i need more
 
 
 

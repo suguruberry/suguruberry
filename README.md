@@ -1,8 +1,7 @@
 <div align="center">
 
-<img width="225" height="224" alt="image" src="https://github.com/user-attachments/assets/b021a33c-8f6f-44ff-bd57-fd8e36354c13" />
+<img width="636" height="415" alt="image" src="https://github.com/user-attachments/assets/974d08ca-4bf9-47ab-9ebe-f8f89464976f" />
 
-ROCK MY WORLD - MJ
 
 ***
 

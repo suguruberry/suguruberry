@@ -5,10 +5,11 @@
 
 ****
 
-blame it on the boogie - the jacksons 
+$\small\color{#414852}{\textsf{ "I determine my own destiny."}}$ 
+
 ****
 
-⠀ ⠀⠀ ⠀⠀[rentry](https://rentry.co/hwsii2dx)
+[rentry](https://rentry.co/hwsii2dx)
 
 
 

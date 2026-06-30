@@ -1,17 +1,13 @@
 <div align="center">
 
-<img width="920" height="475" alt="image" src="https://github.com/user-attachments/assets/f82fff89-a49a-4483-b4c9-f6f1589f429d" />
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/e525e688-9f13-4e4c-8d2c-c1d2d4eb2c15" />
+
 
 ****
 
- [prn.cc](https://pronouns.cc/@tenshadows) ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀[rentry](https://rentry.co/hwsii2dx)
-
-![](https://files.catbox.moe/pue6h7.PNG)
+⠀ ⠀⠀ ⠀⠀[rentry](https://rentry.co/hwsii2dx)
 
 
-
-
-oh shit they got me
 
  
   

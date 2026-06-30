@@ -5,7 +5,7 @@
 
 ****
 
-$\small\color{#414852}{\textsf{ "I determine my own destiny."}}$ 
+$\small\color{#414852}{\textsf{ "I determine}}$ $\small\color{#635655}{\textsf{my own destiny."}}$ 
 
 ****
 

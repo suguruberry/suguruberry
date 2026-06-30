@@ -6,12 +6,12 @@
 
  [prn.cc](https://pronouns.cc/@tenshadows) ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀[rentry](https://rentry.co/hwsii2dx)
 
+![](https://files.catbox.moe/pue6h7.PNG)
 
 
 
 
-
-
+oh shit they got me
 
  
   

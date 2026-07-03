@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img width="540" height="220" alt="image" src="https://github.com/user-attachments/assets/270a5ba2-49c1-41fc-a6ee-27d8c07b7032" />
+<img width="340" height="120" alt="image" src="https://github.com/user-attachments/assets/270a5ba2-49c1-41fc-a6ee-27d8c07b7032" />
 
 
 <table>
@@ -11,7 +11,7 @@
 
   ****
   
-  <img width="348" height="348" alt="image" src="https://files.catbox.moe/r5tsh7.png" />
+  <img width="250" height="250" alt="image" src="https://files.catbox.moe/r5tsh7.png" />
 </td>
 
 <td style="vertical-align: top;">
@@ -20,9 +20,6 @@
 
    
 
-   $\small\color{#a6653a}{\textsf{ "If you don't take risks,}}$ 
-
-   $\small\color{#fc0317}{\textsf{you can't create a future."}}$ 
 
    
   [rentry](https://rentry.co/hwsii2dx)  
@@ -39,7 +36,7 @@
 </table>
 
 
-<img width="500" height="174" alt="image" src="https://github.com/user-attachments/assets/ead5350a-dc3e-43aa-a26a-dc8f7f2dd39f" />
+<img width="400" height="147" alt="image" src="https://github.com/user-attachments/assets/ead5350a-dc3e-43aa-a26a-dc8f7f2dd39f" />
 
  
   

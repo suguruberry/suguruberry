@@ -1,8 +1,8 @@
 <div align="center">
 
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/e525e688-9f13-4e4c-8d2c-c1d2d4eb2c15" />
+<img width="348" height="348" alt="image" src="https://files.catbox.moe/r5tsh7.png" />
 
-
+this is a wip
 ****
 
 $\small\color{#414852}{\textsf{ "I determine}}$ $\small\color{#635655}{\textsf{my own destiny."}}$ 

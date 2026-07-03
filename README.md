@@ -9,7 +9,7 @@ $\small\color{#414852}{\textsf{ "I determine}}$ $\small\color{#635655}{\textsf{m
 
 ****
 
-[rentry](https://rentry.co/ddirectory)
+[rentry](https://rentry.co/hwsii2dx)
 
 
 

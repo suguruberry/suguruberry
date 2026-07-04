@@ -2,7 +2,6 @@
 
 
 <div align="center">
-<img width="434" height="95" alt="image" src="https://github.com/user-attachments/assets/f4477d6d-6507-4e56-8e0d-6930867d04dd" />
 
 
 
@@ -10,7 +9,7 @@
 <tr>
 <td style="vertical-align: top;">
 
-  ****
+  
   
 <a href="https://rentry.co/hwsii2dx"><img width="145" height="50" alt="image" src="https://github.com/user-attachments/assets/0438a119-17f9-4e3d-bfb4-3bcd45ab693b" />
 ****

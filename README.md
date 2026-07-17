@@ -13,7 +13,7 @@
 
 <td style="vertical-align: top;">
   <div class="image">
-<img src="https://files.catbox.moe/w8ilwb.png" width="148" height="148" alt="image">
+
 
    
 

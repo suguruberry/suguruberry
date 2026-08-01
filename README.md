@@ -10,7 +10,7 @@
 
 
 
-[ponytowns mario wahooo](https://github.com/title-town)
+[ponytowns mario](https://github.com/title-town)
 
 
 

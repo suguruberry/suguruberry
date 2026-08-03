@@ -13,8 +13,9 @@
 ponytown rewards:
 
 
-[title town](https://github.com/title-town)
-[pt-awards](https://github.com/pt-awards)
+[pony towns mario](https://github.com/title-town)
+
+[pretty skins nomination](https://github.com/pt-awards)
 
 
 

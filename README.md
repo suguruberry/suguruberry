@@ -17,9 +17,7 @@ ponytown rewards:
 
 [pretty skins nomination](https://github.com/pt-awards)
 
-<img width="589" height="596" alt="image" src="https://github.com/user-attachments/assets/9301a30e-4241-44e7-8e26-6ba49a81313e" />
-
-
+[pony towns peter parker](https://github.com/ponychievements)
 
    
 

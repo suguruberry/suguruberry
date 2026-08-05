@@ -13,11 +13,10 @@
 ponytown rewards:
 
 
-[pony towns mario](https://github.com/title-town)
-
-[pretty skins nomination](https://github.com/pt-awards)
-
-[pony towns peter parker](https://github.com/ponychievements)
+[pony towns mario](https://github.com/title-town),
+[pretty skins nomination](https://github.com/pt-awards),
+[pony towns peter parker](https://github.com/ponychievements),
+[pony towns spider-man](https://github.com/ponytown-nominations)
 
    
 

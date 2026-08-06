@@ -7,7 +7,7 @@
 
 
 
-<a href="https://rentry.co/trythem"><img width="150" height="35" alt="image" src="https://github.com/user-attachments/assets/e28c4938-1ac3-4f4e-948e-e75033837872" />
+[**RENTRY**](https://rentry.co/trythem) | [**CC**](https://pronouns.cc/@sqiderman)
 
 
 ponytown rewards:

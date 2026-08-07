@@ -10,11 +10,8 @@
 [**RENTRY**](https://rentry.co/trythem) | [**CC**](https://pronouns.cc/@sqiderman)
 
 
-ponytown ㅤ ㅤ rewards:
+<img width="540" height="100" alt="image" src="https://github.com/user-attachments/assets/2b4c899f-a43f-47ef-8809-8a53afb9d0d3" />
 
-
-[pony towns mario](https://github.com/title-town)⠀⠀
-[pretty skins nomination](https://github.com/pt-awards)⠀⠀
 [pony towns peter parker](https://github.com/ponychievements)⠀⠀
 [pony towns spider-man](https://github.com/ponytown-nominations)⠀⠀
 [pony towns peter parker again](https://github.com/pt-fashion)

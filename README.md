@@ -19,5 +19,5 @@
 
 [pony towns peter parker 03](https://github.com/pt-contributers)
 
-<img width="540" height="100" alt="image" src="https://github.com/user-attachments/assets/1da1c822-b011-4dd5-ab56-8100c12f3fa7" />
+▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰
 

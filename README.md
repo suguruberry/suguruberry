@@ -19,5 +19,3 @@
 
 [pony towns peter parker 03](https://github.com/pt-contributers)⠀⠀[folktowns spider-man](https://github.com/FOLKTOWN)
 
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰
-

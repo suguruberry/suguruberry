@@ -11,8 +11,7 @@
 [**RENTRY**](https://rentry.co/trythem) | [**CC**](https://pronouns.cc/@sqiderman)
 
 
-<img width="540" height="100" alt="image" src="https://github.com/user-attachments/assets/2b4c899f-a43f-47ef-8809-8a53afb9d0d3" />
-
+****
 [pony towns peter parker 01](https://github.com/ponychievements)⠀⠀
 [pony towns spider-man 01](https://github.com/ponytown-nominations)⠀⠀
 [pony towns peter parker 02](https://github.com/pt-fashion)

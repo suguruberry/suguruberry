@@ -8,7 +8,7 @@
 
 
 
-[**RENTRY**](https://rentry.co/trythem) | [**CC**](https://pronouns.cc/@sqiderman)
+[**RENTRY**](https://rentry.co/trythem) | [**P.CC**](https://pronouns.cc/@Peter)
 
 
 ****

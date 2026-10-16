@@ -8,7 +8,7 @@
 
 
 
-[**RENTRY**](https://rentry.co/trythem) | [**STRAW.PG**](https://snowysnow.straw.page/)
+[**RENTRY**](https://rentry.co/trythem) | [**STRAW.PG**](https://oldnokia.straw.page/)
 
 
 ****

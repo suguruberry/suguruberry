@@ -1,7 +1,8 @@
 <div align="center">
 
 
-<img width="353" height="288" alt="image" src="https://github.com/user-attachments/assets/4841fc4c-3987-4954-bbb3-a21f1f530422" />
+<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/7d415d10-4bb6-4528-a9ec-88733b57cd16" />
+
 
 
 
@@ -23,5 +24,8 @@
 ⠀⠀[pony towns peter parker 04](https://github.com/cosplaytown)
 
 </details>
+
+<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/0539ed62-49a7-49a1-882c-64fad64aec7c" />
+
 
 

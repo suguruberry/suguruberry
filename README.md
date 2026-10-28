@@ -10,7 +10,7 @@
 
 
 
-[**RENTRY**](https://rentry.co/trythem) | [**STRAW.PG**](https://oldnokia.straw.page/) | [**P.CC**](https://pronouns.cc/@500M)
+[**RENTRY**](https://rentry.co/trythem) | [**P.CC**](https://pronouns.cc/@500M)
 
 
 ****

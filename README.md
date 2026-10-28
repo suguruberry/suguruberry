@@ -26,7 +26,7 @@
 
 </details>
 
-444 followers lowkey tuff
+444 following lowkey tuff
 
 
 

@@ -10,7 +10,7 @@
 
 
 
-[**RENTRY**](https://rentry.co/trythem) | [**P.CC**](https://pronouns.cc/@500M)
+[**RENTRY**](https://rentry.co/trythem) | [**P.CC**](https://pronouns.cc/@kylian)
 
 
 ****

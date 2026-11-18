@@ -10,19 +10,17 @@
 
 
 
-[**RENTRY**](https://rentry.co/trythem) - [**P.CC**](https://pronouns.cc/@500M)
+[**RENTRY**](https://rentry.co/trythem) ⠀ [**P.CC**](https://pronouns.cc/@500M)
 
 
 ****
 <details>
-  <summary>PONYTOWN ACHIEVEMENTS</summary>
+  <summary>𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍 𝐀𝐂𝐇𝐈𝐄𝐕𝐄𝐌𝐄𝐍𝐓𝐒</summary>
   
-  [pony towns peter parker 01](https://github.com/ponychievements)⠀⠀
-[pony towns spider-man 01](https://github.com/ponytown-nominations)⠀⠀
-[pony towns peter parker 02](https://github.com/pt-fashion)
-
-[pony towns peter parker 03](https://github.com/pt-contributers)⠀⠀[folktowns spider-man](https://github.com/FOLKTOWN)⠀⠀[pony towns spider-man 02](https://github.com/pt-medals)
-⠀⠀[pony towns peter parker 04](https://github.com/cosplaytown)⠀⠀⠀⠀⠀⠀[pony towns mario](https://github.com/title-town)⠀⠀[pretty skins](https://github.com/pt-awards)
+ **PT'S PETER PARKER:** [ponychievemnts](https://github.com/ponychievements)⠀[ponytown-nominations](https://github.com/ponytown-nominations)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-contributers](https://github.com/pt-contributers)⠀[folktwon](https://github.com/FOLKTOWN)⠀[pt-medals](https://github.com/pt-medals) [cosplaytown](https://github.com/cosplaytown)⠀⠀⠀⠀⠀⠀
+ 
+**PT'S MARIO:** [title-town](https://github.com/title-town)
+⠀**PRETTY SKINS:** [pt-awards](https://github.com/pt-awards)
 
 </details>
 

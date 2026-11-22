@@ -20,7 +20,7 @@
  **PT'S PETER PARKER:** [ponychievemnts](https://github.com/ponychievements)⠀[ponytown-nominations](https://github.com/ponytown-nominations)⠀[pt-fashion](https://github.com/pt-fashion)⠀[pt-contributers](https://github.com/pt-contributers)⠀[folktwon](https://github.com/FOLKTOWN)⠀[pt-medals](https://github.com/pt-medals) [cosplaytown](https://github.com/cosplaytown)⠀⠀⠀⠀⠀⠀
  
 **PT'S MARIO:** [title-town](https://github.com/title-town)
-⠀**PRETTY SKINS:** [pt-awards](https://github.com/pt-awards)
+⠀**PRETTY SKINS:** [pt-awards](https://github.com/pt-awards) **PT'S BARRY ALLEN:** [THE TEMPEST](https://github.com/THE-TEMPIST)
 
 </details>
 
